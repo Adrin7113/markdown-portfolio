@@ -6,4 +6,4 @@
 * Think
 * Of
   * Any
-  * More :smile:
+  * More 😅
